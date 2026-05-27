@@ -1,1 +1,0 @@
-# Capta-o-Zona-Norte
